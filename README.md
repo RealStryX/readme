@@ -1,4 +1,4 @@
 ### Hi I'm Kluk Z Pekla 👋
-### 🖥Developer |CSGO
+### 🖥Developer | CSGO
 
 ### 💻Discord Developer server💻 https://dsc.gg/forcedevelopers
