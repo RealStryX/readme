@@ -1,4 +1,4 @@
-### Hi I'm Kluk Z Pekla 👋
+### Hi I'm StryX 👋
 ### 🖥Developer | CSGO
 
-### 💻Discord Developer server💻 https://dsc.gg/forcedevelopers
+### 💻My Community Server💻 https://discord.gg/tJy6Vdks7E
