@@ -1,6 +1,6 @@
 ### Hi I'm Dominik 👋
 ### 🖥 Technician | CSGO | MC | FiveM | WEB |
-### 💻 Developer | SMX | HTML |
+### 💻 Developer | SourcePawn | HTML |
 
 ### InsaneTown Community ###
 • https://discord.gg/WQy9vQRGFM
