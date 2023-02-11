@@ -1,4 +1,9 @@
-### Hi I'm StryX 👋
-### 🖥Developer | CSGO
+### Hi I'm Dominik 👋
+### 🖥 Technician | CSGO | MC | FiveM | WEB |
+### 💻 Developer | SMX | HTML |
 
-### 💻My Community Server💻 https://discord.gg/tJy6Vdks7E
+### InsaneTown Community ###
+• https://discord.gg/WQy9vQRGFM
+
+### InsaneTown Website ###
+• https://insanetown.cz/
