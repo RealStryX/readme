@@ -1,9 +1,8 @@
 ### Hi I'm Dominik 👋
-### 🖥 Technician | CSGO | MC | FiveM | WEB |
-### 💻 Developer | SourcePawn | HTML |
+### 💻 Developer [#HTML, #CSS, #JS, #LUA]
 
-### InsaneTown Community ###
-• https://discord.gg/WQy9vQRGFM
+### Developer's Community ###
+• https://discord.gg/XxYgMff5RX
 
-### InsaneTown Website ###
-• https://insanetown.cz/
+### My Website Website ###
+• https://stryx.eu/
